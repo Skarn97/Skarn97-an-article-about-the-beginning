@@ -1,1 +1,1 @@
-# Skarn97-article-about-tech
+# Skarn97-an-article-about-the-beginning
